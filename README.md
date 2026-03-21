@@ -5,7 +5,7 @@
 
 ## 🚀 币安（Binance）官方邀请通道
 ### 🔑 永久邀请码：A0813
-### 🌐 专属注册链接：https://www.bsmkweb.cc/join?ref=A0813
+### 🌐 专属注册链接：https://www.binance.com/zh-CN/join?ref=A0813
 ### ✅ 注册即享币安官方福利
 1. 新人阶梯式专属奖励，现货/合约交易达标解锁对应福利
 2. 邀请码绑定享交易费率折扣，全品类交易长期有效
@@ -24,7 +24,7 @@
 
 ## 🔥 OKX（欧易）官方邀请通道
 ### 🔑 永久邀请码：11531926
-### 🌐 专属注册链接：https://www.jqcpyyuxbkk.com/join/11531926
+### 🌐 专属注册链接： https://okx.com/join/11531926
 ### ✅ 注册即享最高100 USDT新人奖励
 1. 注册并完成指定交易任务，解锁最高**100 USDT**官方奖励
 2. 享欧易现货/合约低手续费，叠加邀请码专属费率优惠
@@ -65,5 +65,5 @@
 ---
 
 ### 👉 立即注册，解锁双平台福利
-- 币安注册：https://www.bsmkweb.cc/join?ref=A0813 | 永久邀请码：A0813
-- OKX注册：https://www.jqcpyyuxbkk.com/join/11531926 | 永久邀请码：11531926
+- 币安注册：https://www.binance.com/zh-CN/join?ref=A0813 | 永久邀请码：A0813
+- OKX注册：https://okx.com/join/11531926 | 永久邀请码：11531926
