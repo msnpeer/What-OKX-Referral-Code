@@ -1,0 +1,56 @@
+# Binance & OKX Official Referral Codes (Permanent)
+Exclusive referral links & codes for new users • Sign-up bonuses • Fee discounts
+
+---
+
+## 🚀 Binance Referral Info
+**Permanent Referral Code**: A0813
+**Official Sign-up Link**: https://www.binance.com/zh-CN/join?ref=A0813   ｜。https://www.bsmkweb.cc/join?ref=A0813
+
+### Benefits
+- New user tiered rewards for spot & futures trading
+- Exclusive trading fee discounts when using the referral code
+- Access to Binance Launchpad, Web3, DeFi, and staking benefits
+- AI trading tools and copy trading features available
+- Earn ongoing referral commissions from your invited friends
+
+### How to Use
+1. Open the official sign-up link above
+2. Register with email or phone number
+3. **Enter referral code: A0813** (required for bonuses)
+4. Complete KYC verification
+5. Claim rewards in the Rewards Center and start trading
+
+---
+
+## 🔥 OKX Referral Info
+**Permanent Referral Code**: 11531926
+**Official Sign-up Link**: https://okx.com/join/11531926 ｜ https://www.jqcpyyuxbkk.com/join/11531926
+
+### Benefits
+- New user bonus up to 100 USDT
+- Lower trading fees for spot, futures, and derivatives
+- Secure 1:1 reserve proof for user assets
+- Deep liquidity, fast execution, and global support
+- Earn referral rewards from your network
+
+### How to Use
+1. Click the exclusive registration link
+2. Create an account with email or phone
+3. **Enter referral code: 11531926** during registration
+4. Complete identity verification
+5. Claim bonuses and enjoy discounted fees
+
+---
+
+## Important Notes
+- Referral codes are **permanent and valid forever**
+- Codes must be entered **during registration only**
+- All rewards are issued officially by the platforms
+- No hidden fees or extra conditions
+
+---
+
+## Sign Up Now
+Binance: https://www.binance.com/zh-CN/join?ref=A0813 ｜ https://www.bsmkweb.cc/join?ref=A0813 | Code: A0813
+OKX: https://okx.com/join/11531926  ｜  https://www.jqcpyyuxbkk.com/join/11531926 | Code: 11531926
